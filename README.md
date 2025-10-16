@@ -82,6 +82,6 @@ It explores the **market size, technological progress, and adoption trends** of 
 
 ## 👨‍💻 Author
 **Ankush Kumar Jaiswal** 
-🔗 [LinkedIn](#)
+🔗 [LinkedIn](https://www.linkedin.com/in/ankush-jaiswal-nitrr/)
 
 ---
